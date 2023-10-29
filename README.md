@@ -16,7 +16,7 @@
 
 - 📄 Know about my experiences [resume link](resume link)
 
-- ⚡ Fun fact **I love to learn everything from anywhere**
+- ⚡ Fun fact **I love to learn anything from anywhere**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
