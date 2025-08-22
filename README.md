@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **mdnahidyn@gmail.com**
 
-- 📄 Know about my experiences [resume link]([resume link](https://drive.google.com/file/d/1_nLCx2lBDrt2S8Tv-uLCeTIgMPhJnJk_/view?usp=sharing))
+- 📄 Know about my experiences ([Resume Link](https://drive.google.com/file/d/1_nLCx2lBDrt2S8Tv-uLCeTIgMPhJnJk_/view?usp=sharing))
 
 - ⚡ Fun fact **I love to learn anything from anywhere**
 
