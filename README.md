@@ -11,7 +11,7 @@
 
 - 📝 I regularly write articles on [blog link](blog link)
 
-- 💬 Ask me about **react js, next js**, redux**, mongodb**
+- 💬 Ask me about **react js, next js, redux, mongodb**
 
 - 📫 How to reach me **mdnahidyn@gmail.com**
 
